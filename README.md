@@ -1,0 +1,1 @@
+# galgamerank.github.io
